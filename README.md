@@ -1,1 +1,2 @@
-16y/o, Germany, Discord: CypDasHuhn#1920 (DM's Open)
+17y/o, Germany, Discord: cypdashuhn (DM's Open)
+Intermediate Software Dev, i do kotlin in my spare time and js/c# fullstack web dev professionally.
